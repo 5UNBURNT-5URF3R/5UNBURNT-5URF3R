@@ -1,6 +1,6 @@
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Sunburnt%20Surfer/0.png?v=1754223302208> </p>
                      
-![unnamed](https://github.com/user-attachments/assets/624bd1f0-1a11-412b-89aa-dbc97b942dbb)
+![](https://github.com/user-attachments/assets/624bd1f0-1a11-412b-89aa-dbc97b942dbb)
 
 <p align="center"> Megan　<img height=20 src=https://file.garden/Z1wsLskJxRiY2oPJ/Sunburnt%20Surfer/unnamed.png?v=1754225777872>　He/Him　<img height=20 src=https://file.garden/Z1wsLskJxRiY2oPJ/Sunburnt%20Surfer/unnamed.png?v=1754225777872>　6teen </p>
 
