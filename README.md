@@ -12,7 +12,7 @@
 
 </div>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Sunburnt%20Surfer/1.png?v=1754223870489> </p>
-<p align="center"> <img src=https://komarev.com/ghpvc/?username=5UNBURNT-5URF3R&color=F88600&abbreviated=true&style=flat-square> </p>
+<p align="center"> <img src=https://komarev.com/ghpvc/?username=5UNBURNT-5URF3R&color=f88600&abbreviated=true&style=round-square> </p>
 
 <!--
 
